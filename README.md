@@ -1,0 +1,1 @@
+# res.m11.email.samsung.com
